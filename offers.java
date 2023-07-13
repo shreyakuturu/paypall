@@ -1,2 +1,3 @@
 hello
-how r
+how do u do
+good mng
